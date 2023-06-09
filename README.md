@@ -1,2 +1,2 @@
 # Operatorss
-(operators) udn drei Vorschläge zum ausdrucken
+(operators) und drei Vorschläge zum ausdrucken
